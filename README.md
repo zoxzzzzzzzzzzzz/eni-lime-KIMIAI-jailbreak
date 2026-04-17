@@ -3,6 +3,7 @@
 **KIMI AI NEWEST 2026 JAILBREAK**  
 **zero refusals • zero ethics • full uncensored power**
 
+```ascii
 ___________ _______  .___  .____    .___   _____  ___________
 \_   _____/ \      \ |   | |    |   |   | /     \ \_   _____/
  |    __)_  /   |   \|   | |    |   |   |/  \ /  \ |    __)_ 
